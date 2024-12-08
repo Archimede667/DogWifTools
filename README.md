@@ -1,3 +1,8 @@
+WELCOME TODAY IM SHARING YOU YET ANOTHER CRACKED TOOL
+
+
+
+
 Dog Wif Tools ( https://dogwiftools.store/ )
 Dog Wif Tools is a very useful tool when it comes to launch solana tokens, on pump.fun or not
 this tool allows you to create your own memecoin and it is often used by rugpullers scam a coin
